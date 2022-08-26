@@ -1,1 +1,2 @@
-# pensamento1h2022
+<h1>Saudações</h1>
+Ola boa noite, sou o aluno Maykon de Oliveira, morro com meus pais, estou a procura de conhecimentos e um futuro melhor não so para  mim e sim melhorar a sociedade com simples gestos, morro com minha mãe e minha irmã , na parte da manha customo a ir pro trabalho ou para o meu curso de formação para uma vaga de emprego, estou no 1°ano medio e meus objetivos é morar sozinho e conquistar meu carro e minha moto e ter uma familia unida, gosto de varias coisas de ler, jogar bola, sair com os amigos etc...
